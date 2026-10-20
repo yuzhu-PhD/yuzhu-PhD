@@ -1,4 +1,4 @@
-# Hi, I'm Yu Zhu, or Brett 👋
+# Hi, I'm Yu Zhu, or Clement 👋
 
 PhD candidate in Plant Molecular Biology.
 
